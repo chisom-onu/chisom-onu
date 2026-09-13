@@ -1,6 +1,6 @@
 # Chisom Onu
 
-### Customer Success Manager | Onboarding, Retention & Account Growth
+### Customer Success Manager | Onboarding, Retention & Account Management
 
 **I catch what's going quiet before it turns into a churn conversation.**
 
